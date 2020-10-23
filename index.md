@@ -1,3 +1,3 @@
-# Welcome to my blog
+# My life code
 
-I'm glad you are here. I plan to talk about ...
+Be Faithful to God, Love your woman and Build your Nation.
